@@ -1,6 +1,7 @@
 # <a href="https://l24.im/M0mADeL">BETKOM GİRİŞ TIKLA</a>
 # <a href="https://l24.im/M0mADeL">BETKOM GİRİŞ TIKLA</a>
-<a href="https://l24.im/M0mADeL"><img src="https://resmim.net/cdn/2024/10/07/mQocaj.png" alt="resim yükle" border="0" /></a>
+# <a href="https://l24.im/M0mADeL">BETKOM GİRİŞ TIKLA</a>
+# <a href="https://l24.im/M0mADeL">BETKOM GİRİŞ TIKLA</a>
 
 # Betkom Bahis Sitesi: Güvenli, Hızlı ve Kazançlı Bahis Deneyimi
 **Betkom Bahis Sitesi: Güvenilir ve Eğlenceli Bir Bahis Deneyimi**
